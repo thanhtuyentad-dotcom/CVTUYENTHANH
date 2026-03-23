@@ -1,2 +1,0 @@
-# CVTUYENTHANH
-mô tả cv
